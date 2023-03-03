@@ -1,1 +1,0 @@
-## Olá WAS Cloud Week
